@@ -1,1 +1,1 @@
-# Gimana ya cara edit ini
+# Final Project Kelompok (Farhan Alwahid & Taor Baga)
